@@ -43,6 +43,7 @@ Vishal Gudla
 Member, App and Web Development Club – KGRCET
 
 🔗 GitHub https://github.com/vishalgudla944
+
 🔗 LinkedIn https://www.linkedin.com/in/vishal-gudla/
 
 
